@@ -1,3 +1,3 @@
 # Oct15_Practice
 
-kill yourself
+Eat pani puri 
